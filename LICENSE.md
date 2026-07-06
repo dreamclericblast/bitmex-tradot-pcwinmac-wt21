@@ -1,4 +1,4 @@
-# 
+# Profissional bitmex trading bot predefinições for Mac OS | VIP bitmex trading bot predefinições for PC Windows. Featuring API de exchange centralizada and pools de liquidez DEX — optimized for maximum performance.
 
 
 
